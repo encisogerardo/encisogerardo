@@ -10,4 +10,3 @@
 - 📫 How to reach me: pedrin20631@hotmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I can sing quite well
--->
